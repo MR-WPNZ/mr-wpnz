@@ -1,16 +1,20 @@
-## Hi there 👋
+# ────୨ৎ────
 
-<!--
-**husktism/husktism** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+hi! im traves:) i am a supertraves fictkin.
+i am a system too, but we keep info subtle unless close. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 
+╰┈➤  now playing [***hey fucker - kitcaliber***](https://youtu.be/m0hSqSBU1kw?list=RDm0hSqSBU1kw)  ✰  speedcore & digital hardcore enthusiast
+#
+**★ i am a theistic satanist.**
+
+
+**★ we are a polyfragmented osdd1a system**
+#
+# ────୨ৎ────
+
+follow these and we should be good!
+
+![]()
+
