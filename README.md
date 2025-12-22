@@ -16,5 +16,5 @@ he/her
 
 follow these and we should be good!
 
-![](https://github.com/husktism/husktism/blob/main/04b3c1b17178979a4318c95dfa2c2888.jpg?raw=true)
+![](https://github.com/MR-WPNZ/mr-wpnz/blob/main/GxZJKuDagAArlKg.png?raw=true)
 
