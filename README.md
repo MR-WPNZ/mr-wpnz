@@ -9,7 +9,7 @@ he/her
 #
 **★ c+h is always on! just don't cuddle when our name is set to dni.**
 
-**★ we are iffy on some doubles, please do not ask why. we dont owe you an answer*
+**★ we are iffy on some doubles, please do not ask why. we dont owe you an answer**
 
 **★ we are a polyfragmented osdd1a system**
 
